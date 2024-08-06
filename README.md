@@ -1,8 +1,8 @@
-# Jardim
+# Jardim Botânico 
 ## disponível em:
 ### https://images.app.goo.gl/ynXEKjtgUyW9DrmP9
 
-# Cataratas
+# Cataratas do Iguaçu 
 ## disponível em:
 ### https://images.app.goo.gl/sMAtmSXcyrPGbr3j7
 
